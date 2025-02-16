@@ -1,2 +1,2 @@
 # Photo-slide
-birthday wish for my bestie
+Birthday wish for my bestie
